@@ -1,3 +1,1 @@
-MADE BY Wxycz#7777
-
-DM ME FOR HELP!
+Nites Bot
